@@ -1,1 +1,1 @@
-# LABKOM-SMAKBO-uwu
+# uwuwuwuwuwuwuwuwwuwuuwuwu
